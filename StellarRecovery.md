@@ -10,7 +10,7 @@
 1. Descomprimir o Extraer
 2. Abrir el **(StellarToolkitforDataRecovery.exe)**
 3. Instalarlo
-4.** No iniciar el programa, copiar el contenido de la carpeta "Medicina" y pegarlo en el directorio donde se instaló el programa.**
+4. **No iniciar el programa, copiar el contenido de la carpeta "Medicina" y pegarlo en el directorio donde se instaló el programa.**
 
 > **⚠️ Aclaraciones:**  
 > - **Desactiva el antivirus** antes de activar, extraer e instalar.  
