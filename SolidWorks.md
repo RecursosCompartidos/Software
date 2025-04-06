@@ -1,7 +1,7 @@
 # 🖥️ SolidWorks 2024
 **🆕 Versión:** v2024-SP3.1
 
-**🔗 Link de descarga:** 
+**🔗 Links de descarga (Descargar todo):** 
 - https://store1.gofile.io/download/direct/3e4f3c09-6520-4939-8889-7a1542a4bac9/SW2024SP3.1.ZDescargas.org.part1.rar
 - https://store1.gofile.io/download/direct/9c9ce844-59f0-4e71-8078-7e422fefd6b2/SW2024SP3.1.ZDescargas.org.part2.rar
 - https://store1.gofile.io/download/direct/274f3422-b1c5-418c-b0b8-5b81e4c1d210/SW2024SP3.1.ZDescargas.org.part3.rar
