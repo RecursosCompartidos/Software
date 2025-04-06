@@ -2,14 +2,14 @@
 **🆕 Versión:** v2024-SP3.1
 
 **🔗 Link de descarga:** 
-- https://www.mediafire.com/file/nhu6ethi0ttvdba/SW2024SP3.1.ZDescargas.org.part1.rar/file
-- https://www.mediafire.com/file/r7qdgy75yh7j93f/SW2024SP3.1.ZDescargas.org.part2.rar/file
-- https://www.mediafire.com/file/jtrxejmngsbiooa/SW2024SP3.1.ZDescargas.org.part3.rar/file
-- https://www.mediafire.com/file/ohgz9l2jl1r1eon/SW2024SP3.1.ZDescargas.org.part4.rar/file
-- https://www.mediafire.com/file/c6p4jvdxuv9fome/SW2024SP3.1.ZDescargas.org.part5.rar/file
-- https://www.mediafire.com/file/q2tqs4jl7wt16p1/SW2024SP3.1.ZDescargas.org.part6.rar/file
-- https://www.mediafire.com/file/d0r5ewwh48frxqe/SW2024SP3.1.ZDescargas.org.part7.rar/file
-- https://www.mediafire.com/file/la265r4uocv6vls/SW2024SP3.1.ZDescargas.org.part8.rar/file
+- https://store1.gofile.io/download/direct/3e4f3c09-6520-4939-8889-7a1542a4bac9/SW2024SP3.1.ZDescargas.org.part1.rar
+- https://store1.gofile.io/download/direct/9c9ce844-59f0-4e71-8078-7e422fefd6b2/SW2024SP3.1.ZDescargas.org.part2.rar
+- https://store1.gofile.io/download/direct/274f3422-b1c5-418c-b0b8-5b81e4c1d210/SW2024SP3.1.ZDescargas.org.part3.rar
+- https://store1.gofile.io/download/direct/8e1deba1-0d8b-4318-b459-ec7f873244b7/SW2024SP3.1.ZDescargas.org.part4.rar
+- https://store1.gofile.io/download/direct/81a60f6c-3a40-4363-803d-dbb2f84459ba/SW2024SP3.1.ZDescargas.org.part5.rar
+- https://store1.gofile.io/download/direct/7faf0c8f-03b9-4e80-8ffb-723144b009d3/SW2024SP3.1.ZDescargas.org.part6.rar
+- https://store1.gofile.io/download/direct/2e87c1c1-386c-49f6-bb04-8b38db11f448/SW2024SP3.1.ZDescargas.org.part7.rar
+- https://store1.gofile.io/download/direct/007ff595-a39f-4814-a6eb-631ec8cf2aa6/SW2024SP3.1.ZDescargas.org.part8.rar
 > Descargar todos los archivos antes de extraer o dara error
 
 **🔐 Contraseña:** `www.zdescargas.org`
