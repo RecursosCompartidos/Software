@@ -2,7 +2,8 @@
 **🆕 Versión:** v5.0.6.30713
 
 **🔗 Link de descarga:** 
-- https://dl-file.xyz/dl-fast/EIMMJaauRI/aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS9maWxlL3ZzbWQxMHZmdXZ6ZWZpaS9TY29vdGVyQmV5b25kQ29tcGFyZTUuMC42LjMwNzEzLmQuemlwL2ZpbGU=
+- https://br0wsers.com/detail/product/kEqfacOa0XGZ4BDYosfgKAWwn-2649-20928.html
+> Los links estan abajo
 
 **🔐 Contraseña:** `taiwebs.com`
 
