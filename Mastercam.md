@@ -2,7 +2,8 @@
 **🆕 Versión:** v25.0.14245.0
 
 **🔗 Link de descarga:** 
-- https://acortar.link/mastercam-korsinemi
+- https://br0wsers.com/detail/product/fDIERPW6iiwJ1cco0yb1Oj3fm-5306-15117.html
+> Los links estan abajo
 
 **🔐 Contraseña:** `taiwebs.com`
 
