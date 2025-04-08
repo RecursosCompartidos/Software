@@ -1,4 +1,4 @@
-# 🖥️ VCamtasia Studio Pro
+# 🖥️ Camtasia Studio Pro
 **🆕 Versión:** v25.0.0.7062
 
 **🔗 Link de descarga:** 
